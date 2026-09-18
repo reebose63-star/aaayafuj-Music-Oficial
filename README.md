@@ -8,3 +8,7 @@
 * Love It Die Die
 * Never Lie as She
 * Imagine Why Need Love
+
+* 🔊 [**SoundCloud**](https://soundcloud.com/lil-hops-431888051)
+* 🔊 [**YouTube**](https://www.youtube.com/@aaayafuj-nf2gx)
+  
